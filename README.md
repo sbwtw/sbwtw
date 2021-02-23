@@ -9,3 +9,4 @@
 - 📫 How to reach me: sbw@sbw.so
 - 😄 Pronouns: sbw
 - ⚡ Fun fact: more than 100 kg of an interesting soul
+- 💰 BTC Sponsor: 3EDpMyGkp2FAQbAe7F3PhzRsxA44Kqek51
